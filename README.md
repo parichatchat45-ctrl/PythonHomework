@@ -1,4 +1,1 @@
-# PythonHomework
-# PythonHomework
-# PythonHomework
-# PythonHomework
+ปาริฉัตรบุญเสริม 6912732123
